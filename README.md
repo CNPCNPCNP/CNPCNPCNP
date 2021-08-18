@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CNPCNPCNP
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning how to do stuff
+- 💞️ I’m looking to collaborate on anything that will earn me a dollar
+- 📫 How to reach me, you can't brother
